@@ -1,2 +1,3 @@
 # stunning-memory
 That was a project that can be the first repository of mine.
+i dnt to know how to write sth,just blala...
